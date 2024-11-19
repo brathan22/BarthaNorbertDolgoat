@@ -1,1 +1,1 @@
-# BarthaNorbertDolgoat
+# BarthaNorbertDolgozat
